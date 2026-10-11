@@ -215,4 +215,4 @@ Tomb Raider Legend is available as a full free version for Windows, including al
 Don't miss out on the adventure of a lifetime! **Download Tomb Raider Legend now and join Lara Croft on her quest!**
 
 ---
-**Last updated:** 2026-10-11 11:13:46 UTC
+**Last updated:** 2026-10-11 17:22:29 UTC
